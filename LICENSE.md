@@ -1,4 +1,4 @@
-
+Enhance Notion for Windows with smart Notion for Windows Module | OCR-support + templates, the #1 module. Includes OCR-support and templates for a smoother and more productive
 
 
 
